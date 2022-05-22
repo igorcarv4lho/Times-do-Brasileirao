@@ -1,0 +1,22 @@
+## 1ª DIVISÃO 
+
+- América-MG
+- Athletico
+- Atlético-GO
+- Atlético-MG
+- Avaí (subiu da Série B)
+- Botafogo (subiu da Série B)
+- Bragantino
+- Ceará
+- Corinthians
+- Coritiba (subiu da Série B)
+- Cuiabá
+- Flamengo
+- Fluminense
+- Fortaleza
+- Goiás (subiu da Série B)
+- Juventude
+- Internacional
+- Palmeiras
+- Santos
+- São Paulo
